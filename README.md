@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-https://media1.tenor.com/m/K4D2UMe5JzIAAAAd/jude-mouth-jude-mouth-lock.gif
+
 ![](https://media1.tenor.com/m/K4D2UMe5JzIAAAAd/jude-mouth-jude-mouth-lock.gif)
